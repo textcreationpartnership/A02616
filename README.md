@@ -35,28 +35,54 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The great bragge and challenge of M. Champion a Jesuite co[m]monlye called Edmunde Campion, latelye 
+
+1. TO THE RIGHT HONORABL SIR THOMAS Bromley Knight lorde Chaunceler of Englande▪ VVilliam L. Burleigh, and Lord Treasorer, Rob, ert▪ Earle of Leicester, Edward, Earle of Lyncolne with the rest of her Maiestyes most honourable Counsayle, continuaunce of healthe, encrease of honoure, and all Heauenlye wisedome.
+
+1. TO M. CHAMPION THE Challenger, Meredith Hanmer the Answerer sendeth greetinge.
+
+1. M. Hanmer the aunswerer vnto the Christian Reader.
+
 #####Body#####
 
-1. The aunswere.
+1. M. Champion, a Iesuite lately arriued here in England hath laide downe as followeth: by way of chall•ng.
 
-1. The aunswere.
+    _ The aunswere.
 
-1. The Aunsweare.
+1. The Iesuite.
 
-1. The aunswere.
+    _ The aunswere.
 
-1. The aunswere.
+1. The Iesuite.
 
-1. The aunswere.
+    _ The Aunsweare.
 
-1. The Aunswere.
+1. The Iesuite.
 
-1. The aunswere.
+    _ The aunswere.
 
-1. The Aunswere.
+1. The Iesuite.
 
-1. The aunswere.
+    _ The aunswere.
+
+1. The Iesuite.
+
+    _ The aunswere.
+
+1. The Iesuite.
+
+    _ The Aunswere.
+
+1. The Iesuite.
+
+    _ The aunswere.
+
+1. The Iesuite.
+
+    _ The Aunswere.
+
+1. The Iesuite.
+
+    _ The aunswere.
 
 **Types of content**
 
